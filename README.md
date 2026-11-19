@@ -3,7 +3,7 @@
 
   <img width="1000" height="270" alt="2799170_30eb7" src="https://github.com/user-attachments/assets/cbe334e6-af5b-4f14-90be-77d12e9dfdcf" />
 
-## $\color{#e3ccfb}{\text{You can call me jake or felf !! }}$
+## $\color{#e3ccfb}{\text{You can call me jake, jade, or elliot !! }}$
 
 ## $\color{#e3ccfb}{\text{he/it ⸝⸝ transmasc nonbinary }}$
 
