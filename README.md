@@ -13,7 +13,7 @@
 
 ## $\color{#e3ccfb}{\text{i am jake english, jade harley, pluey/catmike, and tenna fictionkin !!  }}$
 
-## $\color{#e3ccfb}{\text{DIRKS PLEASE PLEAS INT AND BE MY FRIEND!! !!  }}$
+## $\color{#e3ccfb}{\text{I BEG OF YOU TO INT!!! I LOVE FRIENDS!!  }}$
 
 
 
